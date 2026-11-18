@@ -1,1 +1,0 @@
-# shorts-auto-editor-legal
